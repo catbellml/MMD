@@ -13,3 +13,5 @@ mmd借取规则：
 
 借取方法：
 https://www.aplaybox.com/u/967798336 私信
+
+qq群：830246836
